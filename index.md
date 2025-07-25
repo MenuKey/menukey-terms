@@ -20,7 +20,7 @@ Logos, menu designs, and trademarks belong to their respective owners. We do not
 
 ### 3. Content Removal
 
-If you are a restaurant owner or representative and would like your information removed or corrected, please email us at [info@menukey.com](mailto:info@menukey.com) and we will respond promptly.
+If you are a restaurant owner or representative and would like your information removed or corrected, please email us at [info@menukey.com](mailto:info@menukey.pk) and we will respond promptly.
 
 ---
 
